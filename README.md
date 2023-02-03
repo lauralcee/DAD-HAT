@@ -1,1 +1,2 @@
-# DAD-HAT
+# DAD HAT
+Whereas baseball caps are stiffer in construction, [dad hat](https://wocgear.com/) are less rigid and are often known as “floppy hats” or “floppy caps” as well, thanks to their more relaxed fit and design. The streetwear dad hat was born in the 1970s as baseball players wore them during matches. Owing to their large size, mostly middle-aged men sported dad caps, and hence the name, “dad hat”.
